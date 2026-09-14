@@ -4,4 +4,4 @@
   </a>
 </p>
 
-listenin to a bunch of bs
+hi i will make this all pretty looking later, but im mostly always semi-afk. i do see yalls whispers but i am usually too busy throwing peoples game in overwatch to respond back :(
